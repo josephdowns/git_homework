@@ -5,3 +5,5 @@ Sometimes concepts will be introduced to me that I might not understand immediat
 I have never been one to use a calendar. But making a calendar for Mod0 has been very helpful. Moving forward, I will make a calendar for the module I am in and it will help me plan out success.
 
 It is okay to ask for help. My cohort is going through the same learning that I am and asking them for help will enable everyone to understand better.
+
+Thank you to HeatherRae who has been a wonderful supportive friend through this process of leaving my job and exploring something new!
