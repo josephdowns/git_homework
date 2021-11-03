@@ -7,3 +7,5 @@ I have never been one to use a calendar. But making a calendar for Mod0 has been
 It is okay to ask for help. My cohort is going through the same learning that I am and asking them for help will enable everyone to understand better.
 
 Thank you to HeatherRae who has been a wonderful supportive friend through this process of leaving my job and exploring something new!
+
+Also, shoutout to Lee for being a great companion!
